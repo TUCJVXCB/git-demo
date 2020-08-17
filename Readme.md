@@ -1,2 +1,1 @@
-Fuck!
-version5
+WPG NB!
